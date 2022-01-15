@@ -6,5 +6,5 @@ Une liste non exhaustive des mots ayant une sonorité évoquant parfaitement leu
 
 > - **Blini**, *nom masculin*
 >   
->   - Crêpe de blé et der sarrasin, épaisse et de petit diamétre
+>   - Crêpe de blé et de sarrasin, épaisse et de petit diamétre
 >
