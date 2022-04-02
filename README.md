@@ -10,9 +10,6 @@ Une liste non exhaustive des mots ayant une sonorité évoquant parfaitement leu
 >
 >   - Marque, généralement circulaire et de couleur rouge, symbole de prospérité domestique, apposée sur le front, siège de la sagesse dans la tradition hindouiste.
 >
-> - **Bite**, *nom féminin*
-> 
->   - Penis.
 > 
 > - **Blini**, *nom masculin*
 >   
